@@ -1,1 +1,1 @@
-# I'm attending Gurupurnima
+# Gurupurnima
